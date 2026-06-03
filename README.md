@@ -2,4 +2,4 @@
 
 Software Developer
 
-Turning ideas into software.
+Turning ideas into black magic.
